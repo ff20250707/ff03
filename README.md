@@ -16,4 +16,4 @@
 简单访问、一键播放，方便快捷。
 我们致力于打造一个安全、稳定、丰富的观影平台，让你随时随地畅享高质量的日本AV内容。立即进入，开启你的精彩观影之旅！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ff20250707/ff03 ）</span>
